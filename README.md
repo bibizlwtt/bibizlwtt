@@ -1,16 +1,26 @@
-## Hi there 👋
+### OII SEJÁ MUITO BEM-VINDO AO MEU PERFIL
 
-<!--
-**bibizlwtt/bibizlwtt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+✩₊˚.⋆☾⋆⁺₊✧˚˖𓍢ִ໋🦢˚
 
-Here are some ideas to get you started:
+Meu nome é Gabriela vitória mais conhecida como gabi, aqui vou deixar algumas curiosidades e coisas que eu sei fazer, e o que me deixa feliz, quero que isso faça parte do meu dia a dia, e que você se sinta em casa ao ler essas palavras.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Estudo a linguagem de javascript, e tenho muito interesse por isso e desejo aprender cada vez mais.
+- Sou nivel intermediário em inglês.
+- Gosto muito de aprender coisas novas em todas as aréas principalmente em tecnologia e inovação.
+
+### Curiosidades sobre mim ✮
+-Gosto muiito de jogar genshin e LOL𓆝 𓆟 𓆞 𓆝 𓆟
+
+-Gosto de qualquer coisa que emglobe musica, exemplo ˚⋆˙𝒔𝒕𝒓𝒂𝒚 𝒌𝒊𝒅𝒔 ˙⋆˚
+
+★ ★ ★ ★ ★★ ★ ★ ★ ★★ ★ ★ ★ ★★ ★ ★ ★ ★★ ★ ★ ★ ★★ ★ ★ ★ ★★ ★ ★ ★ ★★ ★ ★ ★ ★★ ★ ★ ★ ★★ ★ ★ ★ ★★ ★ ★ ★ ★
+
+### CASO QUEIRA ENTRAR EM CONTATO COMIGO 
+
+    @bibizlwt on intagram
+    
+    gabrielanicodemos326@gmail.com
+
+![descrição do GIF](https://media.tenor.com/sZAFClOWXV8AAAAj/kaedehara-kazuha-genshin-impact.gif)
+    
+
